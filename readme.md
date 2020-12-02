@@ -1,0 +1,1 @@
+Ate aqui o curso tem sido muito bom, algumas pequenas coisas são complicadas de entender, mas nada que o Google não ajude
